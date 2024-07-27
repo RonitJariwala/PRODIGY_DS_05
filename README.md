@@ -18,5 +18,6 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 
 For any inquiries or collaborations, feel free to reach out:
 
-- Email: [daksh22222@gmail.com](mailto:daksh22222@gmail.com)
-- LinkedIn: [Daksh Tyagi](https://www.linkedin.com/in/daksh-tyagi/)
+- Email: [ronit.jariwala15@gmail.com](mailto:ronit.jariwala15@gmail.com)
+- LinkedIn: [Ronit Jariwala](https://www.linkedin.com/in/ronit-jariwala-120817288/?originalSubdomain=in)
+
